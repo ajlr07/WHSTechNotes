@@ -12,3 +12,5 @@ but they use it.
 i think it is important for the people to know how to use it, inmean not to be a expert person with that, but have a litte bit of knowlag eabaut that,
 because of my point of view it can help us one day in some way, or for the persons who are interested in study something relationated with that,
 i think is a good thimg to learn, and also it can be helful.
+# september 16, 2025
+I think it may work, but it is kind of stupid for my to be honest, i mean AI is so rebolutionated today, and ofcorse that AiI could solve real problems, but for me the humas are the only ones who really can solve those problems, because as a humans we the experience of life, we know how is the real world, but it is not bad idea, if the winer will win 10,000 it is good, i mean not only do it for the money also for the idea to create something new that maybe could help the world.
