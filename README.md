@@ -4,3 +4,7 @@ A lot of student use it, but they say it randomly,
 and when tey say it they change their voice tone, they make it more slow 
 i think it will be in school culture because is something really popular 
 i heart it even out of the school all day.
+# october 6 2025 
+to be honest i think cell phones new police will hwlp students to do not distract them selves,
+but i dont think that is good that we can use like in lunch or when we are done with our assigment, i will allow games in computers 
+because sometimes we are bored and we need a distrction 
