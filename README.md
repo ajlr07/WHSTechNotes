@@ -8,3 +8,7 @@ i heart it even out of the school all day.
 to be honest i think cell phones new police will hwlp students to do not distract them selves,
 but i dont think that is good that we can use like in lunch or when we are done with our assigment, i will allow games in computers 
 because sometimes we are bored and we need a distrction 
+# october 16 2025
+My promt was designed to college students with abvanced skills,
+the canva AI help with the build, and to understand better how to do a thing like that as a hand made,
+i thiink that all the parts worked very good, for the next time i think it will be better to me to have a previus idea abaut what a want to desing.
