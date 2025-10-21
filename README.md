@@ -12,3 +12,5 @@ because sometimes we are bored and we need a distrction
 My promt was designed to college students with abvanced skills,
 the canva AI help with the build, and to understand better how to do a thing like that as a hand made,
 i thiink that all the parts worked very good, for the next time i think it will be better to me to have a previus idea abaut what a want to desing.
+# october 20 2025
+assigmentg excused 
