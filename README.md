@@ -14,3 +14,5 @@ the canva AI help with the build, and to understand better how to do a thing lik
 i thiink that all the parts worked very good, for the next time i think it will be better to me to have a previus idea abaut what a want to desing.
 # october 20 2025
 assigmentg excused 
+# october 27 
+one example of technology that helps people with the climate are that it tells people what will happen, and they can take care and put them selfs save. it helps because tell people what will happen nex so they can know what they can do and were to go, if i can do some for it, will be to do domething that tell people the spsific were it will happen.
