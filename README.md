@@ -19,3 +19,5 @@ one example of technology that helps people with the climate are that it tells p
 # november 3, 2025 
 i think that if SNAO runs out of funding it will a problem, becauase if many people use it, and it's helps many persosn, technology will be a good help for them, because people can look, can try to find another places that help them, but also it can be difficult for many people to can use, maybe they dot have a cellphone or or not internet accces, 
 if i could create something that could help people i'm not sure abaut the name but i will put in like in a public are and free for who really need it.
+# november 10, 2025 
+of course that want that tanksgiving breack come soon
