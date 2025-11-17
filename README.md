@@ -21,3 +21,5 @@ i think that if SNAO runs out of funding it will a problem, becauase if many peo
 if i could create something that could help people i'm not sure abaut the name but i will put in like in a public are and free for who really need it.
 # november 10, 2025 
 of course that want that tanksgiving breack come soon
+# November 17, 2025 
+i think that the technology changed the way people celebrate and conect, not only in holidays, in every party or celebration that they had, technology help people when they are in a long dinstance, that way they can be kind of conected, and see how is it going, i don't thingk that it make it worse or better, i mean, it cab be helpful and can help people to conect when they can't be there, in my opinion the developers do no should ne responsibles for making shure that it a 100% works in a holiday.
