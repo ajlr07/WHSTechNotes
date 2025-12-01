@@ -23,3 +23,5 @@ if i could create something that could help people i'm not sure abaut the name b
 of course that want that tanksgiving breack come soon
 # November 17, 2025 
 i think that the technology changed the way people celebrate and conect, not only in holidays, in every party or celebration that they had, technology help people when they are in a long dinstance, that way they can be kind of conected, and see how is it going, i don't thingk that it make it worse or better, i mean, it cab be helpful and can help people to conect when they can't be there, in my opinion the developers do no should ne responsibles for making shure that it a 100% works in a holiday.
+# December 1, 2025 
+one real job that is one like contruction site monitoring , they observe and document activities to ensure safety, security etc, i don't exactly how much trhey get paid, but they normally need college and hihg school, for me i wuld like to have this job becase it is kind of easy.
