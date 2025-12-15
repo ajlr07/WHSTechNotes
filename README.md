@@ -27,3 +27,5 @@ i think that the technology changed the way people celebrate and conect, not onl
 one real job that is one like contruction site monitoring , they observe and document activities to ensure safety, security etc, i don't exactly how much trhey get paid, but they normally need college and hihg school, for me i wuld like to have this job becase it is kind of easy.
 # December 8, 2025
 i think the car can not recognize the stop sing because ca not determine what kind of sing is that, like what is that for or something like that, the camaras oor the AI should like analize or determine the sing, like seening that is an stop sing, if i can i add a reader, i mean like that the AI could read STOP on thr sing and automatically stop.
+# December 15, 2025
+my plans for this wionter break is to travel to my country, and spend so man y time with my family
