@@ -48,4 +48,5 @@ one real job that is one like contruction site monitoring , they observe and doc
 i think the car can not recognize the stop sing because ca not determine what kind of sing is that, like what is that for or something like that, the camaras oor the AI should like analize or determine the sing, like seening that is an stop sing, if i can i add a reader, i mean like that the AI could read STOP on thr sing and automatically stop.
 # December 15, 2025
 my plans for this wionter break is to travel to my country, and spend so man y time with my family
-
+# January 6, 2026 
+I used technology in my break to find places to travel,and to calculate how many time i will spemd to get there, also to comunicate with mu family 
