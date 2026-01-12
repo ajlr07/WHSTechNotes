@@ -50,3 +50,5 @@ i think the car can not recognize the stop sing because ca not determine what ki
 my plans for this wionter break is to travel to my country, and spend so man y time with my family
 # January 6, 2026 
 I used technology in my break to find places to travel,and to calculate how many time i will spemd to get there, also to comunicate with mu family 
+# January 12, 2026
+On internet, there are so many ways were people can play. were they can meet new people and make virtual friends, but also there is so many ways that people can bully each other, tell bad words or that things, not all the people are the same in internet, there are so man harms that can happen on internet like ciberbulling, hate speech, and harassment, is for that reason than is necessary to have a safe place also in internegt,
