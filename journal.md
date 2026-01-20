@@ -52,3 +52,6 @@ my plans for this wionter break is to travel to my country, and spend so man y t
 I used technology in my break to find places to travel,and to calculate how many time i will spemd to get there, also to comunicate with mu family 
 # January 12, 2026
 On internet, there are so many ways were people can play. were they can meet new people and make virtual friends, but also there is so many ways that people can bully each other, tell bad words or that things, not all the people are the same in internet, there are so man harms that can happen on internet like ciberbulling, hate speech, and harassment, is for that reason than is necessary to have a safe place also in internegt,
+# January 20, 2026 
+Technology can help to create more fair and just society by tecahing or showing young people yhe right things, loke what is okay to do and waht no, also teaching them thing abaut school and how to behave, not onlyat school, also at home, with thwir parents, with old people.
+also technology equalizes accces and opportunities like in economic empowerment that remote work removes geographical barries to employment, while online platforms (like teach moms0 tecah skills for entrepreneurship, helping women and marginalized groups join the work force 
