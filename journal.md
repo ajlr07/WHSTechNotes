@@ -55,3 +55,5 @@ On internet, there are so many ways were people can play. were they can meet new
 # January 20, 2026 
 Technology can help to create more fair and just society by tecahing or showing young people yhe right things, loke what is okay to do and waht no, also teaching them thing abaut school and how to behave, not onlyat school, also at home, with thwir parents, with old people.
 also technology equalizes accces and opportunities like in economic empowerment that remote work removes geographical barries to employment, while online platforms (like teach moms0 tecah skills for entrepreneurship, helping women and marginalized groups join the work force 
+# january 29, 2026 
+i take TSI, i feel that my performanse was not bad, i mean in th emath one i read question by question, but in the inglish one i did not.
