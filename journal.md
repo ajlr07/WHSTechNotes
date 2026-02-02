@@ -57,3 +57,7 @@ Technology can help to create more fair and just society by tecahing or showing 
 also technology equalizes accces and opportunities like in economic empowerment that remote work removes geographical barries to employment, while online platforms (like teach moms0 tecah skills for entrepreneurship, helping women and marginalized groups join the work force 
 # january 29, 2026 
 i take TSI, i feel that my performanse was not bad, i mean in th emath one i read question by question, but in the inglish one i did not.
+# February 2, 2026 
+i thinkk that personal hygiene is very importtan in shered enviroment because imagine that you are next to some one sho smell bad, or the person just look dirty that is very unconfortable, and you will no think good things abaut this person, the same if you were the person who smells bad, other person could think that you have bad hynigene or that you don't take care of your self,
+If others are to loudly it can affect how other person focous in their work, also the strongs smells and beheivors, becase the other person can be consentrated doing their work anad it can distrac them.
+some expectations in shared enviroemt are to be quit, behave the correct way and respect others.
