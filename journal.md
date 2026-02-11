@@ -61,3 +61,6 @@ i take TSI, i feel that my performanse was not bad, i mean in th emath one i rea
 i thinkk that personal hygiene is very importtan in shered enviroment because imagine that you are next to some one sho smell bad, or the person just look dirty that is very unconfortable, and you will no think good things abaut this person, the same if you were the person who smells bad, other person could think that you have bad hynigene or that you don't take care of your self,
 If others are to loudly it can affect how other person focous in their work, also the strongs smells and beheivors, becase the other person can be consentrated doing their work anad it can distrac them.
 some expectations in shared enviroemt are to be quit, behave the correct way and respect others.
+# February 10, 2026
+i think that if i plat football i will enjoy it, because, bur for now i do not, becauase iu don't know how to play it.
+I didn't wach super bowl, that's because i don't really like that sport, but i heard so  much about it, and think was a great idea to bring bad bunny to represent latinos.
