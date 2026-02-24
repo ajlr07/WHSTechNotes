@@ -64,3 +64,5 @@ some expectations in shared enviroemt are to be quit, behave the correct way and
 # February 10, 2026
 i think that if i plat football i will enjoy it, because, bur for now i do not, becauase iu don't know how to play it.
 I didn't wach super bowl, that's because i don't really like that sport, but i heard so  much about it, and think was a great idea to bring bad bunny to represent latinos.
+# February 23, 2026 
+The technology that has the bigest impact in the olympics of 2026 was first person view (FPV) drones and artificial intelligence
