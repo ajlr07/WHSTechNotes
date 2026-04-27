@@ -66,3 +66,10 @@ i think that if i plat football i will enjoy it, because, bur for now i do not, 
 I didn't wach super bowl, that's because i don't really like that sport, but i heard so  much about it, and think was a great idea to bring bad bunny to represent latinos.
 # February 23, 2026 
 The technology that has the bigest impact in the olympics of 2026 was first person view (FPV) drones and artificial intelligence
+# March 23, 2026
+i pick ny bracket using some date like ranking and fecords, but also my opinion and guessing.
+one surprise was low teams beaat high teams, this is surprising becaause high teams are supose to win.
+using data like stats and net rating can help because it shows better how strong team is.
+computer progam can use this and run many times games and see patterns it can be more correct than person guessing 
+Jobs for this is like sporst analysdt, statistican, and software engineer.
+
