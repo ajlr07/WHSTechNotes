@@ -29,3 +29,5 @@ one real job that is one like contruction site monitoring , they observe and doc
 i think the car can not recognize the stop sing because ca not determine what kind of sing is that, like what is that for or something like that, the camaras oor the AI should like analize or determine the sing, like seening that is an stop sing, if i can i add a reader, i mean like that the AI could read STOP on thr sing and automatically stop.
 # December 15, 2025
 my plans for this wionter break is to travel to my country, and spend so man y time with my family
+# March 23, 2026
+i pick ny bracket using some date like ranking and fecords, but also my opinion and guessing. one surprise was low teams beaat high teams, this is surprising becaause high teams are supose to win. using data like stats and net rating can help because it shows better how strong team is. computer progam can use this and run many times games and see patterns it can be more correct than person guessing Jobs for this is like sporst analysdt, statistican, and software engineer.
