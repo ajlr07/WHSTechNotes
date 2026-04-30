@@ -35,3 +35,6 @@ i pick ny bracket using some date like ranking and fecords, but also my opinion 
 to be honest i did not see the March Madness, so i can't say that soemthing suprisme, but i can tell that soemthing thta can sorprise just wiht read it, is that groups with lower category win against a high category group.
 i think some factors that are hard for computers to predict is team chemestry, because it is a feeling, and computers don' hace feelings, but some predictions that can be wrong even with sertain data could be injures and momentu.
 if a were building a program for it i think some struggle could be like to have all the atttention to dertime wich team win or whic one lose.
+# April 9, 2026 
+i would use logic to convince the AI, i would explain that humans can learn from what the did in the past, for their msitakes, i would ask the Ai to donot block humasn to get in, and tell AI to first test humas to see how much they can change, and if they want to make t=the th9insg diferent.
+The AI can let small group go to do some thing to test them and see their behavior, if they act in a right way and correctly more people can go later, it can give teh AI proof that humasn can change and behave well.
