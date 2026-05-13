@@ -38,3 +38,5 @@ if a were building a program for it i think some struggle could be like to have 
 # April 9, 2026 
 i would use logic to convince the AI, i would explain that humans can learn from what the did in the past, for their msitakes, i would ask the Ai to donot block humasn to get in, and tell AI to first test humas to see how much they can change, and if they want to make t=the th9insg diferent.
 The AI can let small group go to do some thing to test them and see their behavior, if they act in a right way and correctly more people can go later, it can give teh AI proof that humasn can change and behave well.
+# May 11, 2026
+i think that something that i develop this year was confidence, last year i did not was that confident, because of my lever on inglihs, i also i think that my speak in english growth, something that help me was to made friends, i think i did not change to much sinse the begining of the year.
